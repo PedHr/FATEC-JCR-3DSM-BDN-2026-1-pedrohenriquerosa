@@ -1,1 +1,0 @@
-# FATEC-JCR-3DSM-BDN-2026-1-pedrohenriquerosa
